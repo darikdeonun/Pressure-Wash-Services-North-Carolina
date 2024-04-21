@@ -1,1 +1,2 @@
-# Pressure-Wash-Services-North-Carolina
+# Pressure Wash Services North Carolina
+The frequency of pressure washing depends on several factors such as the type of surface, local weather conditions, and level of traffic or usage. Generally, it's recommended to schedule [Pressure Wash Services North Carolina](https://sunsetpressurewash.com/) annually or bi-annually to maintain the cleanliness and integrity of surfaces. The North Carolina Division of Water Quality identifies pressure washwater as industrial (process) wastewater. Therefore, the discharge of pressure washing wastewater to surface waters, a storm sewer, sanitary sewer, or the ground is a regulated activity requiring a permit from the NCDENR, Division of Water Quality.
